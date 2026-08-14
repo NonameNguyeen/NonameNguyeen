@@ -17,4 +17,9 @@
 - improve my ricing skills
 - switch to Linux
 - use Arch and  Hyprland
+ 
  (ultimate  : find a gf)
+ <h1></h1>
+ <div align="center">
+  <h3>connect <strong>me💬</strong> </h3>
+</div>
