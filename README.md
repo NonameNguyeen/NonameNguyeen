@@ -23,3 +23,10 @@
  <div align="center">
   <h3>Connect <strong>Me💬</strong> </h3>
 </div>
+
+Discord: [NoNameNguyen](https://discord.com/users/1521387608700096616)
+
+feel free to dm  :) 
+
+
+or join this [cult](https://discord.gg/1507757486319337522)
