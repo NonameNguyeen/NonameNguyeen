@@ -29,4 +29,4 @@ Discord: [NoNameNguyen](https://discord.com/users/1521387608700096616) ( if it d
 feel free to dm  :) 
 
 
-or join this [cult](https://discord.gg/CkXBCzCYK)
+OR JOIN THIS [CULT](https://discord.gg/CkXBCzCYK), pls :3
