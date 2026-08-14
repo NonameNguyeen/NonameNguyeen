@@ -24,7 +24,7 @@
   <h3>Connect <strong>Me💬</strong> </h3>
 </div>
 
-Discord: [NoNameNguyen](https://discord.com/users/1521387608700096616)
+Discord: [NoNameNguyen](https://discord.com/users/1521387608700096616) ( if it doesn't work then username:nonamenguyen. )
 
 feel free to dm  :) 
 
