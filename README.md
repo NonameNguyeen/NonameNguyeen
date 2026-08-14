@@ -4,9 +4,17 @@
 
 ### 👤 About Me
 - 14-year-old Vietnamese student
-- Window 11 user(about to switch to linux cuz window sucks)
+- Window 11 user(ik it sucks)
 - an overthinking person
 - have suffered from depression last year
 - still single
   <h1></h1>
 ### 😍Interests 
+- a big fan of football/soccer ⚽
+- start learning about ricing, customizing destop in march , 2026
+  <h1></h1>
+### 🎯 Future Plans
+- improve my ricing skills
+- switch to Linux
+- use Arch and  Hyprland
+ (ultimate  : find a gf)
